@@ -1,0 +1,1 @@
+# 6-mavzu-Daraja-va-uning-xossalari
